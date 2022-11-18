@@ -1,3 +1,1 @@
-🧑‍💻 Software Engineer | FullStack | toB SaaS
-
-[twitter](http://twitter.com/seandong)
+🧑‍💻 Software Engineer  |  💻 Full Stack  |  👉 toB SaaS
