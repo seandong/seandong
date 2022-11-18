@@ -1,1 +1,1 @@
-🧑‍💻 Software Engineer  |  💻 Full Stack  |  👉 toB SaaS
+🧑‍💻 Software Engineer  |  🚀 Full Stack  |  👉 toB SaaS
