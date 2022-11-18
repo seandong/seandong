@@ -1,1 +1,3 @@
-中年废柴一枚
+🧑‍💻 Software Engineer | FullStack | toB SaaS
+
+[twitter](http://twitter.com/seandong)
